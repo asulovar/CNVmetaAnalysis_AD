@@ -1,0 +1,1 @@
+Sulovari, A., Liu, Z., Zhu, Z., & Li, D. (2017). Genome-wide meta-analysis of copy number variations with alcohol dependence. The pharmacogenomics journal.
